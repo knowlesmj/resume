@@ -14,12 +14,15 @@ Southeastern Archaeology of Native America, Appalchian Mountains High Summit Reg
  Education
 ----
 **Appalachian State University**
+
 Bachelors of Science-Anthropology
+
 Geographic Information Systems
 
  Professional Experience
 ----
 **Teaching Assistant**- AppState 2023 Field School, *Summer 2023*
+
 **Research Assitant**- Appalachian State University and Pisgah National Forest, *2022-2023*
 
 Relevant Courses
