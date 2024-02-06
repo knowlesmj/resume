@@ -15,9 +15,9 @@ Southeastern Archaeology of Native America, Appalchian Mountains High Summit Reg
 ----
 **Appalachian State University** *Expected Spring 2024*
 
-  -Bachelors of Science-Anthropology
+  -Bachelors of Science in Anthropology
 
-  -Geographic Information Systems
+  -Geographic Information Systems Certificate
 
  Professional Experience
 ----
