@@ -13,11 +13,11 @@ Southeastern Archaeology of Native America, Appalchian Mountains High Summit Reg
 
  Education
 ----
-**Appalachian State University**
+**Appalachian State University** *Expected Spring 2024*
 
-Bachelors of Science-Anthropology
+  -Bachelors of Science-Anthropology
 
-Geographic Information Systems
+  -Geographic Information Systems
 
  Professional Experience
 ----
